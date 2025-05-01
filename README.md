@@ -1,2 +1,0 @@
-# LTUDDD_Nhom02
-LTUDDD_Nhom02
